@@ -1,0 +1,1 @@
+All list can be change and any mistakes are bc im lazy to fix or idk about
